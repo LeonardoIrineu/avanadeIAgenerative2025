@@ -1,0 +1,1 @@
+# avanadeIAgenerative2025
